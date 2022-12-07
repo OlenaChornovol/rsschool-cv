@@ -5,6 +5,7 @@ I am changing my life and field of activity to web development. I am a Economist
 Contacts
 
 Call: +48 727 814 214 
++38 098 406 54 69
 
 Email: chornovol.elena@gmail.com
 
